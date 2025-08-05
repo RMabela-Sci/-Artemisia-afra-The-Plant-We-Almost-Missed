@@ -52,3 +52,28 @@ Artemisia afra is a versatile plant that can be easily propagated from existing 
 **Stem Cuttings**: Select healthy, non-flowering stems from a mature plant. Cut them into 10-15 cm sections, remove the lower leaves, and plant them in a well-draining soil mix. Keep the soil moist and the cuttings in a warm, sheltered spot until new roots have formed.
 
 **Root Cuttings**: You can also propagate the plant by carefully dividing the root system of a mature plant. Dig up the plant and gently separate it into smaller sections, each with a portion of the root and stem. Replant these sections to establish new plants.
+
+**Preparation Methods**
+
+Dosage Forms of African Wormwood (Artemisia afra)
+Artemisia afra is a versatile herbal remedy, and its medicinal properties can be accessed through several traditional dosage forms, which are used both internally and externally.
+
+**Oral and Topical Use**:
+
+The primary dosage form is an aqueous decoction or infusion, which is essentially a tea made from the plant's leaves.
+
+**Oral**: The decoction or infusion is consumed orally to treat various ailments. Can be mixed with honey to make it more palatable.
+
+**Topical**: The same decoction or infusion can also be used externally for applications such as bathing wounds or other skin conditions.
+
+**Inhalation**:
+
+Another common method for using A. afra is through inhalation, which is particularly effective for respiratory issues.
+
+Steam Inhalation: Fresh leaves are added to a pot of boiling water. The resulting vapor is then inhaled to help clear nasal congestion and soothe the respiratory tract.
+
+**Safety considerations**:
+
+•	Avoid during pregnancy. 
+•	Do not exceed 2 weeks of continuous use.
+•	Skin test first (some report contact dermatitis).
