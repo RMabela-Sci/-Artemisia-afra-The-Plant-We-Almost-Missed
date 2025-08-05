@@ -10,9 +10,9 @@ A few days later, a nasty cold settled in. It started with a tickle in her throa
 
 Grandpa sighed knowingly. "Alright, alright. I know you prefer the tea. Let me go fetch some leaves."
 
-He headed outside to his cherished Artemisia afra plant. It was his go-to for everything—colds, flu, and a myriad of other ailments. He’d taught her that it was a gift from the earth, and he tended it with the utmost care. But when he got to the spot by the water tank, his heart sank. The place where the plant once stood was bare, save for a few stray roots. It was gone. He looked at the pile of yard waste and saw the unmistakable feathery leaves poking out from the heap. His shoulders drooped.
+He headed outside to his cherished Artemisia afra plant. It was his go-to for everything such as colds, flu, and a myriad of other ailments. He’d taught her that it was a gift from the earth, and he tended it with the utmost care. But when he got to the spot by the water tank, his heart sank. The place where the plant once stood was bare, save for a few stray roots. It was gone. He looked at the pile of yard waste and saw the unmistakable feathery leaves poking out from the heap. His shoulders drooped.
 
-He went back inside, not with a handful of fresh leaves, but with a different kind of Artemisia—his treasured potted plant that lived in the sunroom. He placed it on the table next to Thandi's bed.
+He went back inside, not with a handful of fresh leaves, but with a different kind of Artemisia, his treasured potted plant that lived in the sunroom. He placed it on the table next to Thandi's bed.
 
 "Thandi," he began, his voice soft but firm. "Do you know what this is?"
 
