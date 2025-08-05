@@ -10,7 +10,7 @@ This repository shares a story woven from the lives of three girls, each discove
 
 > *Common Names*: African Wormwood, Lengana (Setswana), Umhlonyane (Isixhosa), Wildeals (Afrikaans)
 > *Family*: Asteraceae  
-> *Traditional Use*: Colds, flu, fever, respiratory issues, digestive problems, and more.
+> *Traditional Uses*: Colds, flu, fever, respiratory issues, digestive problems, and more.
 
 Artemisia afra is a **medicinal plant native to Africa**, widely used in traditional medicine for its **antimicrobial, antiviral, and anti-inflammatory** properties. Known for its strong, bittersweet aroma, it has stood the test of time as one of nature’s most reliable remedies.
 
